@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AimVaguely
+- 👀 I’m interested in Web3, art and writing
+- 🌱 I’m currently learning Art
+- 📫 How to reach me: though email github.xowjj@slmail.me
